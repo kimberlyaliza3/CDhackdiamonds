@@ -3,7 +3,7 @@ Creative destruction diamond codes 2021 ~ creative destruction hack unlimited di
 
 
 
-CHECK HERE >>>> https://drezgaming.xyz/creative-destruction/
+https://justgames.xyz/creative-destruction
 =============================================================
 
 
